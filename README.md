@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jacki
+- 👀 I’m interested in graphic design and software development
+- 🌱 I’m currently studying computer science at SFU
+- 📫 How to reach me - jackilyn.mcgarry@gmail.com
+- 😄 Pronouns: she/her
